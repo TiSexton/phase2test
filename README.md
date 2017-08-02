@@ -1,3 +1,0 @@
-# yoga
-# yoga
-# yoga
